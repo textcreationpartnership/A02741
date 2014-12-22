@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Tvvo treatises I. The purchase of Grace, shewing the excellency of Christ, and the graces of his spi
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
